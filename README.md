@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on gaming
 - 📫 How to reach me 435-535-0433
 - 😄 Pronouns: male
-- ⚡ Fun fact: dont bother 
+- ⚡ Fun fact: mind goblin 
 
 <!---
 thevoid13589/thevoid13589 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
